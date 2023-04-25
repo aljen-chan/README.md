@@ -60,6 +60,7 @@ Discord @AC_
 Unlicensed
 
 
+These are my video links on JSAssessment, the video is broken because I type slowly and my dog chewed my headset so there is no audio. I tried to fix the headset and I thought the mic was working but still not. So I muted it while recording the screen.
 https://www.loom.com/share/51e1295b426845a28f874a033a8f293f
 https://www.loom.com/share/6bc9a0b4c34a4b05a2cc5652ddba8a7b
 https://www.loom.com/share/dc07b751f6c248ad8d63fcc3144ec536
